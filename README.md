@@ -1,6 +1,6 @@
-Github   @hayaisa 
+Github   @Rifuuwa
 
-Bilibili @yairafz https://space.bilibili.com/16663285
+Bilibili @纯金绵山牛肝菌 https://space.bilibili.com/16663285
 
 Discord @Hayaisa#3578
 
